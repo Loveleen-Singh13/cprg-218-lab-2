@@ -57,6 +57,7 @@ Ingredients:
 - 1/4 cup grated Parmesan cheese
 - 1 egg
 - 2 cloves garlic, minced
+- 1/2 cup finely chopped onion
 - Salt and pepper to taste
 - 1 jar (24 oz) spaghetti sauce
 
@@ -77,6 +78,7 @@ Ingredients:
 - 2 tablespoons olive oil
 - 4 slices Swiss cheese
 - 4 hamburger buns
+- Add Pickles
 - Lettuce
 - Tomato
 - Mayonnaise
