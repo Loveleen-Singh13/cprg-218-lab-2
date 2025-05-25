@@ -113,3 +113,23 @@ Instructions:
 7. Drop tablespoon-sized balls of dough onto ungreased baking sheets.
 8. Bake for 8 to 10 minutes or until golden brown.
 9. Cool on wire racks.
+
+### No-Bake Cheesecake
+Ingredients:
+- 1 1/2 cups graham cracker crumbs
+- 1/3 cup sugar
+- 6 tbsp unsalted butter, melted
+- 2 (8 oz) packages cream cheese, softened
+- 1 cup powdered sugar
+- 1 tsp vanilla extract
+- 1 cup heavy whipping cream
+- Fresh berries or fruit topping (optional)
+
+Instructions:
+1. Make the crust: In a bowl, mix graham cracker crumbs, sugar, and melted butter until combined. Press into the bottom of a 9-inch springform pan. Chill in the refrigerator while you prepare the filling.
+2. Make the filling: Beat softened cream cheese until smooth. Add powdered sugar and vanilla extract, and continue to beat until fluffy.
+3. In a separate bowl, whip the heavy cream until stiff peaks form. Gently fold it into the cream cheese mixture until well combined.
+4. Pour the filling into the chilled crust and smooth the top.
+5. Refrigerate for at least 4 hours or overnight until firm.
+6. Top with fresh berries or fruit topping before serving if desired.
+
