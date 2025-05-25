@@ -135,3 +135,23 @@ Instructions:
 5. Refrigerate for at least 4 hours or overnight until firm.
 6. Top with fresh berries or fruit topping before serving if desired.
 
+## Drinks
+### Mango Shake
+
+Ingredients:
+- 2 ripe mangoes, peeled and chopped
+- 1 1/2 cups cold milk
+- 1/2 cup chilled water
+- 2–3 tablespoons sugar
+- 4–5 ice cubes
+
+Instructions:
+1. Add the chopped mangoes (or pulp), cold milk, sugar, and ice cubes to a blender.
+2. Blend until smooth and creamy.
+3. Adjust consistency with a little water or more milk if needed.
+4. For a richer shake, add vanilla ice cream or condensed milk and blend again.
+5. Pour into glasses and garnish with mango slices or nuts.
+6. Serve immediately while cold and frothy.
+
+
+
